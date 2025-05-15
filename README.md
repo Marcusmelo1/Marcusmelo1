@@ -4,7 +4,7 @@
     Sou estudante de SI, preocuro capacitação proficional e experiência, para entra em contato aqui esta meu 
     Instagram https://www.instagram.com/marcus_melo66?igsh=ejkzMmF2cXo0MTcy
 
-👽 Linguagens que estou apredendo 👽
+👽 Linguagens que estou aprendendo 👽
 
 <img 
     align="left" 
